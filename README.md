@@ -1,0 +1,1 @@
+ivanyivendeghaz_5_háromágyasszoba
